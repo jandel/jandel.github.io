@@ -22,7 +22,7 @@ A kde jinde potkat Baobab? Každoročně se účastní **Tabooku – Festivalu m
 
 **Nakladatelství HOST**
 
-Jistě každý má doma v poličce nějakou knihu, která byla vydána známým brněnským nakladatelstvím HOST. A i kdyby ne, tak jistě nějakou měl alespoň půjčenou z knihovny, Host se totiž zaměřuje na vydávání české i překladové prózy, poezie ale i na naučné literatury. V posledních pár letech se v jeho edičních plánech objevují i slavné a oblíbené severské kriminální romány (Larsson, Kepler). Ale nakladatelství se nezaměřuje jen na vydávání knih, snaží se spolupracovat i s různými organizacemi, které mají ve svém popisu práce kulturu či knihy. Příkladem uvádím čtenářský festival [I kráva má svou knihu] (http://ikravamasvouknihu.cz/), [Střední školu knih] (http://www.ssknih.cz/) nebo  webové stránky [Portál české literatury] (http://www.czechlit.cz/cz/). 
+Jistě každý má doma v poličce nějakou knihu, která byla vydána známým brněnským nakladatelstvím HOST. A i kdyby ne, tak jistě nějakou měl alespoň půjčenou z knihovny, Host se totiž zaměřuje na vydávání české i překladové prózy, poezie ale i na naučné literatury. V posledních pár letech se v jeho edičních plánech objevují i slavné a oblíbené severské kriminální romány (Larsson, Kepler). Ale nakladatelství se nezaměřuje jen na vydávání knih, snaží se spolupracovat i s různými organizacemi, které mají ve svém popisu práce kulturu či knihy. Příkladem uvádím čtenářský festival [I kráva má svou knihu](http://ikravamasvouknihu.cz/), [Střední školu knih](http://www.ssknih.cz/) nebo  webové stránky [Portál české literatury](http://www.czechlit.cz/cz/). 
 
 **Jen tak pro zajímavost...**
 
