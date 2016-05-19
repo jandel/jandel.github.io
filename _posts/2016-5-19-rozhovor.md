@@ -53,4 +53,5 @@ K desátému výročí založení nakladatelství chystáme na podzim v Opavě v
 
 *Dan Jedlička je básník, překladatel a šéfredaktor nakladatelství Perplex. V současné době působí jako pedagog na katedře anglistiky na Slezské univerzitě v Opavě. Vydal dvě básnické sbírky, Mimoběžky (Perplex, 2007) a Sbohem malé nic (Perplex, 2014). Je autorem dvou překladových knih, Ptačí křik (překlady a parafráze básní čínského básníka Wang Weje) a Někdo přijde a udělá to za mě líp (výbor z poezie kultovního britského básníka Rogera McGougha. Básně Dana Jedličky byly zařazeny do ročenky Nejlepší české básně (2012;2014), které vydává nakladatelství Host.*
 
+[Dan Jedlička na Wikipedii.](https://cs.wikipedia.org/wiki/Dan_Jedli%C4%8Dka)
 [O Danu Jedličkovi a jeho poslední sbírce Sbohem malé nic.](http://perplex.cz/knihy-sbohem-male-nic.html)
